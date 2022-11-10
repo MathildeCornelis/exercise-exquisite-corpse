@@ -5,4 +5,11 @@ Il fait froid !  **Les couloirs sont vides et lugubres, éclairés par des bougi
 
 Avec un frisson dû autant au _froid_ qu'à _l'atmosphère inquiétante_, je m'engage dans le couloir d'un pas **vif**, en regardant droit devant moi et pas ailleurs. ***Non***, la personne sur cette photo n'a pas bougé - ce n'est que la flamme vacillante des bougies qui projette des ombres changeantes sur les murs. ***Non***, personne ne me suit - ce que j'entends n'est que l'écho de mes pas. *...n'est-ce pas ?*
 
+---
+
+**Soudainement** un bruit sourd et terrifiant :ghost: retentit deriere moi.
+Je me suis rendu compte avec effroi que **~~je~~ n'suis pas seule...**
+Je me retourne lentement, je sent mon coeur :heart: battre de plus en plus vite, a mi-chemin j'attends une voix qui me dit ...[^1]
+
+[^1]: to be continued :new_moon:
 
