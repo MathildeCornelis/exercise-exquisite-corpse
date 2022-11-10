@@ -1,1 +1,1 @@
-# Cadavre-excquis
+# exercise-exquisite-corpse
